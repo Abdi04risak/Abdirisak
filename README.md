@@ -1,0 +1,2 @@
+# Abdirisak
+Junior Developer
